@@ -1,2 +1,2 @@
+https://nata-sha.github.io/rsschool-cv/cv 
 
-https://NATA-SHA.github.io/rsschool-cv/cv
